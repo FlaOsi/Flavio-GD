@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Flavio-GD
+- 👀 I’m interested in Graphic Design, Visual Communication, Brand Visuals Design, UI Design and Frontend Development.
+- 🌱 I’m constantly learning.
+- 💞️ I like problem solving and I’m looking to collaborate on interesting projects.
+- 📫 Please reach me at 
